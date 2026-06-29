@@ -1,4 +1,4 @@
-# 
+# Avanzado Expensify complementos para Mac OS | Profesional Expensify complementos para PC Windows. Con seguimiento de gastos y plantillas personalizadas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
